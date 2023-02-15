@@ -6,7 +6,7 @@
 - 🤔 I’m looking for help with programming.
 - 📫 How to reach me: @93cifpceuta
 
-##You can find me in:
+## You can find me in:
 
 - [Instagram](https://www.instagram.com/github/)
 - [Notion](https://www.notion.so/T3-Ejercicios-fee7efd574f847a798951c553f9f000e?pvs=4)
